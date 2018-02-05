@@ -1,3 +1,5 @@
 # hello-world
 Just another repository
-Just another Indie/Folk Musician
+Indie/Folk Musician
+Photographer/videographer
+explorer of the unknown
